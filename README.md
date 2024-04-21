@@ -13,4 +13,4 @@ Website Maintenance and Support: Your website is in good hands! I'll provide ong
 
 With my expertise in web development, you can trust that your digital projects are in capable hands. Let's work together to achieve your business objectives and make your online presence shine! ✨ #WebMagic
 
-![Alt text](URL "https://in.images.search.yahoo.com/search/images?p=web+development+image+hd&fr=mcafee&type=E210IN826G0&imgurl=https%3A%2F%2Fwallpaperaccess.com%2Ffull%2F1947431.jpg#id=1&iurl=https%3A%2F%2Fwallpaperaccess.com%2Ffull%2F1947431.jpg&action=click")
+
