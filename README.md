@@ -17,6 +17,6 @@ In today's mobile-first world, I understand the importance of a seamless browsin
 Website Maintenance and Support: 
 Your website is in good hands! I'll provide ongoing maintenance and support to keep it secure, up-to-date, and performing at its best.
 
-With my expertise in web development, you can trust that your digital projects are in capable hands. Let's work together to achieve your business objectives and make your online presence shine! ✨ #WebMagic
+With my expertise in web development, you can trust that your digital projects are in capable hands. Let's work together to achieve your business objectives and make your online presence shines! ✨ #WebMagic
 
 
